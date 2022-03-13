@@ -10,6 +10,7 @@ IF YOU WANT A MOD REMOVED JUST MAKE A PULL REQUEST AND STATE YOUR REASON,
 Be nice monke and don't ruin everyone's game.
 
 I'm Not Gonna Update This Anymore
+NO MORE CHEATS
 
 
 Have Fun :)
